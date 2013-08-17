@@ -41,6 +41,18 @@
   - 小倉唯ソロ活動ファーストシングル。カンピオーネ！の ED。来るかなー…
 
 ## 喜多村英梨
+キタエリさんやでー！
+
+- Birth ◎
+  - 神さまのいない日曜日 OP。最新曲確定感
+- Miracle Gliders ○
+  - PSP「水平線まで何マイル？ -ORIGINAL FLIGHT-」というゲームの主題歌。準新曲やしな
+  - https://www.youtube.com/watch?v=_yRJ7o8UwC0
+- Destiny △
+  - PSP「円卓の生徒 The Eternal Legend」というゲームの主題歌。1年以内
+  - http://www.youtube.com/watch?v=xAhtbtNbqAE
+- Happy Girl △
+  - ワンチャンハピガ！
 
 ## 黒崎真音
 
