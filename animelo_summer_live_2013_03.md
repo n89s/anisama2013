@@ -154,6 +154,22 @@ JOJO！JOJO！JOJO！
   - 碧と彩奈のラ・プチミレディオの OP らしい。上記の B 面。ｼｭﾜｼｭﾜﾉwwwｱﾜwwwｼｭﾜｼｭwwwｼｭﾜｼｭwww
 
 ## 水樹奈々
+なーな！なーな！shiwork氏に感謝！
+
+- Vitalization ◎
+  - シンフォギアG OP。確定やな
+- 愛の星 ◎
+  - 劇場版ヤマト2199 第7章ED。最新曲やしな
+- Lovely Fruit ○
+  - トリコ6代目ED
+- METRO BAROQUE
+  - 劇場版BLOOD-C主題歌。ふみとおおおおおお
+- BRIGHT STREAM ○
+  - 劇場版なのはA's 主題歌
+- POWER GATE ○
+  - トリ曲予想。
+- Preserved Roses △
+  - ヴヴヴOP。誰かとのコラボで来るかもしれないので。
 
 ## 宮野真守
 やはりうたプリ2期のOPはくるよねー。どうせならオルフェも欲しいがどうだろう・・
